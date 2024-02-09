@@ -1,3 +1,21 @@
+# **ABOUT ME**
+👋 Hi, I’m @wan1228
+I’m interested in books and music.
+
+Diploma in Mathematical Science [2020-2023] UiTM
+
+Bachelor of Computer Science [Software Engineering] [2023-now] UTM
+
+Entrepeneurship Exco for Residental College C in UiTM Segamat [2021-2022]
+
+Exco Logistics for Software Engineering Association Club [2023-now]
+
+Skills: High thinking problem solving.
+
+I’m looking to collaborate on computer and math related things
+
+📫 How to reach me is via email wshaiful52@gmail.com
+
 # TIS
 **REFLECTION**
 
